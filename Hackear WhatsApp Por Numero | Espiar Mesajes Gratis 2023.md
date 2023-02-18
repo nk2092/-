@@ -3,7 +3,7 @@
  <p>Desde que el internet se masificó, no solo hubo un apogeo de ingreso a la información, sino que actuó como un arma de doble filo trayendo secuelas negativas. Una de ellas, es la carencia de seguridad, que es aprovechada por los hackers. </p>
   
  ➡ PARA COMENZAR A ESPIAR HAZ CLICK EN EL ENLACE DE ABAJO ⬇ <br> <br> 
- ➡ 
+ ➡ https://hackeator.org/hack/whatsapp/
   
   <p> Por esa razón este sistema es 100% seguro lo cual podras acceder a los mensajes y archivos de la cuenta de WhatsApp, recomiendo usar este servicio para  “hackear WhatsApp”. Ese es un ejemplo de que si es posible conseguir leer los mensajes de cualquier whatsapp, de la cual trataremos a fondo; hemos recopilado <strong>otros metodos</strong> pero sin duda como el anterior no hay ninguno ya que es facil y rapido de usar.</p> 
  
